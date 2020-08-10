@@ -1,1 +1,1 @@
-# Del-texto-a-a-infograf-a
+# Del-texto-a-a-infografia
